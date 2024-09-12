@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nebulae4
+- 👀 I’m interested in coding and medieval topics
+- 🌱 I’m currently learning python 3.12
+- 📫 How to reach me: Idk, find a way
+- ⚡ Fun fact: I REALLY like gladiators
